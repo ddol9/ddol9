@@ -58,8 +58,8 @@ Bachelor's in Materials Science and Engineering
 
 ## 📬 Contact
 
-📧 **Email:** drddol9@gmail.com  
-💼 **LinkedIn:** [linkedin.com/in/ddol9](https://www.linkedin.com/in/ddol9/)
+**Email:** drddol9@gmail.com  
+**LinkedIn:** [linkedin.com/in/ddol9](https://www.linkedin.com/in/ddol9/)
 
 ---
 
