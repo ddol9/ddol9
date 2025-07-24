@@ -46,7 +46,7 @@ Projects:
 
 ## 🎓 Education
 
-**Yonsei University** - *2018 ~ Aug 2025*  
+**Yonsei University** - *Feb 2018 ~ Aug 2025*  
 Bachelor's in Materials Science and Engineering
 
 **Codeit Sprint Frontend Course** - *Apr 2024 ~ Oct 2024*  
